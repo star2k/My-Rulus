@@ -1,8 +1,6 @@
 [betaseeker/How-To-Ask-Questions: 群里提问的艺术](https://github.com/betaseeker/How-To-Ask-Questions)
 ==============================================================================================
 
-01/29/2024 20:08:58本文共 2905 字阅读完需 3.5 分钟
-
 How-To-Ask-Questions
 ====================
 
