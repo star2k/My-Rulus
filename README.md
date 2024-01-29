@@ -109,30 +109,6 @@ How-To-Ask-Questions
 
 本文由 [taoweng](http://taoweng.site/index.php/author/1/) 创作，采用 [知识共享署名4.0](https://creativecommons.org/licenses/by/4.0/) 国际许可协议进行许可 本站文章除注明转载/出处外，均为本站原创或翻译，转载前请务必署名
 
-[betaseeker/How-To-Ask-Questions: 群里提问的艺术](https://github.com/betaseeker/How-To-Ask-Questions)
-==============================================================================================
-
-01/29/2024 20:08:58本文共 2905 字阅读完需 3.5 分钟
-
-[betaseeker/How-To-Ask-Questions: 群里提问的艺术](https://github.com/betaseeker/How-To-Ask-Questions)
-==============================================================================================
-
-01/29/2024 20:08:58本文共 2905 字阅读完需 3.5 分钟
-
-[betaseeker/How-To-Ask-Questions: 群里提问的艺术](https://github.com/betaseeker/How-To-Ask-Questions)
-==============================================================================================
-
-01/29/2024 20:08:58本文共 2905 字阅读完需 3.5 分钟
-
-[betaseeker/How-To-Ask-Questions: 群里提问的艺术](https://github.com/betaseeker/How-To-Ask-Questions)
-==============================================================================================
-
-01/29/2024 20:08:58本文共 2905 字阅读完需 3.5 分钟
-
-[betaseeker/How-To-Ask-Questions: 群里提问的艺术](https://github.com/betaseeker/How-To-Ask-Questions)
-==============================================================================================
-
-01/29/2024 20:08:58本文共 2905 字阅读完需 3.5 分钟
 
 [betaseeker/How-To-Ask-Questions: 群里提问的艺术](https://github.com/betaseeker/How-To-Ask-Questions)
 ==============================================================================================
